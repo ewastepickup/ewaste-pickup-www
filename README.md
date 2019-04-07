@@ -1,1 +1,0 @@
-# ewaste-pickup-www
